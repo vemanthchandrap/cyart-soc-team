@@ -1,3 +1,1 @@
-# cyart-soc-team
-
 # ALL PROJECTS AND TASKS ARE UPLOADED HERE
